@@ -4,8 +4,12 @@
 <h3 align="center"> my name is obscure:3 im female, 17yo (turning 18 ok,) and an artist ! <p align="center"> 
 </p>
 
+<h3 align="center"> my fandoms include; forsaken (excluding the community), house md, the pitt, blocktales, dt , ut , idv, vocaloids ig, sky:cotl :333 , and mha (also excluding the community) ^o^
+  <p align="center">
+  </p>
+  
 <h3 align="center">
-my dni list is simple, 13- dni (in rare cases do i add peeps under 13 so its not that strict of a dni) and the norm stuff liek religionphobes homophobes all of that jazz </h3>
+my dni list is simple, 13- dni (in rare cases, i sometimes will add peeps under 13 so its not that strict of a dni) and the norm stuff liek religionphobes homophobes all of that jazz </h3>
 <p align="center">
 </p>
 
