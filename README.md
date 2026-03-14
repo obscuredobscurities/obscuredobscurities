@@ -4,7 +4,7 @@
 <h3 align="center"> my name is obscure:3 im female, 17yo (turning 18 ok,) and an artist ! <p align="center"> 
 </p>
 
-<h3 align="center"> my fandoms include; forsaken (excluding the community), house md, the pitt, blocktales, dt , ut , idv, vocaloids ig, sky:cotl :333 , and mha (also excluding the community) ^o^
+<h3 align="center"> my fandoms include; forsaken (excluding the community), house md, the pitt, blocktales, dt , ut , idv, vocaloids ig, sky:cotl :333 ,pjo , and mha (also excluding the community) ^o^
   <p align="center">
   </p>
   
